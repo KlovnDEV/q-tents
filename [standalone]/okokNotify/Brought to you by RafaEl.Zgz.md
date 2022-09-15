@@ -1,0 +1,2 @@
+## Brought to you by RafaEl.Zgz (rab-devs.com)
+- This script is very cheap, less than 5€. If you liked it I recommend you to buy from okok store in order to support his job. (Despite that I think it's useful enough to share it here 4 free)
